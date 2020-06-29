@@ -7,3 +7,9 @@ by all the other offices when he was coming or leaving. He would stop
 randomly and stalk people. But he had this unique expertise that was
 his safeguard. For that, we remember him. Forever.
 
+## Character traits
+* mean
+* irritating
+* knowledgeable
+* complete asshole
+
