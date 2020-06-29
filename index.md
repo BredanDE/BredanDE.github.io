@@ -15,3 +15,5 @@ his safeguard. For that, we remember him. Forever.
 
 > I’ve always been more interested
 > in the future than in the past.
+
+<img src="./honk.jpg"/>
