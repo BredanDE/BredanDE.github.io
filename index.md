@@ -13,3 +13,5 @@ his safeguard. For that, we remember him. Forever.
 * knowledgeable
 * complete asshole
 
+> I’ve always been more interested
+> in the future than in the past.
